@@ -1,4 +1,4 @@
-# 
+# rare YNAB for PC | YNAB for Windows Tool | receipt-capture + multi-currency-support is the best YNAB for PC | YNAB for Windows tool, featuring receipt-capture and
 
 
 
